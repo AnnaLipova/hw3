@@ -1,6 +1,6 @@
 [Ссылка на таблицу](https://docs.google.com/spreadsheets/d/1gyrVIoPRIJVI9S0jpDd9Yj5cAkA1sBmu0xNswPh_ByI/edit#gid=92741049&fvid=486101132)
 
-[Ссылка на форму](https://docs.google.com/forms/d/1Gmx2P6JdTKkNkMf5X15ny_gI1Yn5HlfmRTvrin9dPj0/edit
+[Ссылка на форму](https://docs.google.com/forms/d/1Gmx2P6JdTKkNkMf5X15ny_gI1Yn5HlfmRTvrin9dPj0/edit)
 
 Данный опрос направлен на получение знаний о том, насколько те 250(246) человек, что состоят в беседе ИЯиМКК, а также другие люди, которым в руки попадет данное контуженное творение, подвержены современной моде на 2 и 3D миры, мужиков в трусах (поверх колготок) и музыку, в которой нет ничего, кроме "туцтуцтуц". 
 
