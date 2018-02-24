@@ -1,4 +1,4 @@
-[Ссылка на таблицу](https://docs.google.com/spreadsheets/d/1gyrVIoPRIJVI9S0jpDd9Yj5cAkA1sBmu0xNswPh_ByI/edit#gid=92741049&fvid=486101132)
+[Ссылка на таблицу](https://docs.google.com/spreadsheets/d/1gyrVIoPRIJVI9S0jpDd9Yj5cAkA1sBmu0xNswPh_ByI/edit#gid=92741049&fvid=585808939)
 
 [Ссылка на форму](https://docs.google.com/forms/d/1Gmx2P6JdTKkNkMf5X15ny_gI1Yn5HlfmRTvrin9dPj0/edit)
 
